@@ -1,3 +1,6 @@
+  ![WEM EMPLOYEE](https://github.com/user-attachments/assets/6e7a8eda-2533-4bb4-8c52-5102d4f10a23)
+
+
 # KEY INSIGHTS
 
 - Salaries: The total annual salary Paid is across the year is $17,000,000. There has been a significant increase in salaries from 2016 to 2020 before the drop off in 2023.
